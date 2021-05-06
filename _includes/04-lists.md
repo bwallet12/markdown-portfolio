@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Baseball ⚾
+2. Basketball 🏀
+3. Soccer ⚽
